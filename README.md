@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi I'm Bhagyalaxmi Kalyani
 I am a Data Analyst
 
 
